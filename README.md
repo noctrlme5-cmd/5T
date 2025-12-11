@@ -1,0 +1,1 @@
+Before I just bery myself into my own world. Now I try to get access to the whole world.
